@@ -14,5 +14,8 @@ Day 6
 https://www.programiz.com/online-compiler/86VkrlacSohwD
 
 Day 7 
+https://www.programiz.com/online-compiler/1qxGgLIHl5VBF 
+
+https://www.programiz.com/online-compiler/9s9xzyX1cIaWa
 
 
