@@ -18,4 +18,9 @@ https://www.programiz.com/online-compiler/1qxGgLIHl5VBF
 
 https://www.programiz.com/online-compiler/9s9xzyX1cIaWa
 
+Day 8 
+https://www.programiz.com/online-compiler/15rNASqUZVjrZ
+
+https://www.programiz.com/online-compiler/5xlwB5WP9raET
+
 
